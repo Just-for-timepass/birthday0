@@ -1,2 +1,2 @@
 # birthday0
-Happy Birthday Wish for phone
+Happy Birthday Wish for PC
